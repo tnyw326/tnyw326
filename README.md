@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tnyw326
-- 👀 I’m interested in sports, learning new about new technologies, and coding!
+- 👀 I’m interested in sports, learning about new technologies, and coding!
 - 🌱 I’m currently getting a Bachelor's degree in Computer Science at UBC.
 - 😄 Pronouns: he/him.
 
